@@ -1,10 +1,6 @@
 # Practice
 
 
-
-
-
-
 # Ok 
 
 
